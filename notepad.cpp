@@ -7,3 +7,5 @@ release, 5000, fullscreen - ~270 fps after some time
 
 в тишине туалета слышно как за стеной пукают девочки
 боже, ниспошли мне... и он услышал. и не спошлил
+
+https://ru.wikipedia.org/wiki/The_Claypool_Lennon_Delirium
