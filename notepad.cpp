@@ -9,3 +9,5 @@ release, 5000, fullscreen - ~270 fps after some time
 боже, ниспошли мне... и он услышал. и не спошлил
 
 https://ru.wikipedia.org/wiki/The_Claypool_Lennon_Delirium
+
+https://habrahabr.ru/post/66209/ - isolated mode
