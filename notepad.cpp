@@ -18,3 +18,7 @@ https://habrahabr.ru/post/66209/ - isolated mode
 https://ru.wikipedia.org/wiki/Прогрессивный_рок
 https://ru.wikipedia.org/wiki/Zeuhl
 https://forum.xda-developers.com/showthread.php?t=1337839
+
+--- scripts ---
+http://www.imsdb.com/
+http://www.moviescriptsandscreenplays.com/
