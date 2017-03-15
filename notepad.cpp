@@ -88,7 +88,7 @@ INT. КОСМИЧЕСКИЙ КОРАБЛЬ "ПРОМЕТЕЙ" - 2093
 Разве не должны мы все быть трехметровыми альбиносами? И не была ли бы тогда у всех растений и животных точно такая же ДНК, как у людей? И что насчет динозавров? Я надеюсь, фильм объяснит хотя бы часть из этого.
 
 СЦЕНАРИСТ ДЭЙМОН ЛИНДЕЛОФ
-Всё, что вы должны понимать, это то, что этот фильм не про "ответы". Он про "ВОПРОСЫ"!
+Всё, что вы должны понимать, это то, что этот фильм не столько про "ответы", сколько про "ВОПРОСЫ"!
 
 ПОЛЬЗОВАТЕЛИ TWITTER
 А вот всё, что должен понимать ТЫ:
@@ -161,196 +161,191 @@ INT. ПРОМЕТЕЙ
 НОМИ РАПАС
 Эй, а где Шон Харрис и Раф Сполл?
 ШАРЛИЗ ТЕРОН
-Они потерялись, пока мы били под куполом, и до сих пор находятся там.
+Они потерялись, пока мы были под куполом, и до сих пор остаются где-то там.
 НОМИ РАПАС
 Ты вообще в курсе, что у нас есть голографическая карта местности, которая показывает, в каком именно месте под куполом они находятся прямо сейчас?
 ШАРЛИЗ ТЕРОН
 Да.
 НОМИ РАПАС
-Так значит, они не провалились сквозь дыру в земле и не 
-So they didn't fall through a hole in the ground or get trapped behind a cave-in or something practical like that, we're going with "they got lost despite having a billion dollar GPS"?
+Так значит, они не провалились сквозь дыру в земле и не заперты под завалом? Мы просто считаем, что они "потерялись, несмотря на комплект GPS стоимостью в миллиард долларов"?
 ШАРЛИЗ ТЕРОН
-Yuppers.
+Истинно так.
 НОМИ РАПАС
-Then I guess we'll just go get them after the storm passes. Idris should monitor them over night and make sure they're okay.
-IDRIS ELBA
-Or I could go throw my penis inside of Charlize instead!
-HE DOES. NO ONE bothers to keep in touch with SEAN and RAFE because their fellow crew members are DICKS.
+Ну тогда мы отправимся за ними, как только кончится шторм. Идрис будет мониторить их в течение ночи и проследит, чтобы все было в порядке.
+ИДРИС ЭЛЬБА
+Ну или вместо этого я просто пойду и засуну свой член в Шарлиз!
+ОН ИДЕТ И ЗАСОВЫВАЕТ. НИКТО даже и не думает связаться с ШОНОМ и РАФОМ. Потому что вся команда состоит из ИСКЛЮЧИТЕЛЬНЫХ ПИДОРАСОВ.
 
-INT. DOME
+INT. КУПОЛ
 
-SEAN and RAFE camp out in the CREEPY VASE ROOM.
+ШОН И РАФ разбивают лагерь в ЖУТКОВАТОЙ КОМНАТЕ С ВАЗАМИ.
 
-SEAN HARRIS
-Have you noticed all of these metal vases are leaking strange Black Goo?
-RAFE SPALL
-Yes, and a weird creature has just emerged from it!
-The creature is a VAGINA SNAKE.
+ШОН ХАРРИС
+Ты заметил, что изо всех этих металлических ваз вытекает странная Черная Жижа?
+РАФ СПОЛЛ
+Ага, а еще оттуда только что выбралось странное существо!
+Странное существо - это ВАГИНАЛЬНАЯ ЗМЕЯ.
 
-RAFE SPALL
-Even though I ran like a little bitch at the first sign of danger earlier, I will attempt to cuddle with this creature.
-SEAN HARRIS
-You're an idiot. It's going to bite the fuck out of you.
-VAGINA SNAKE
-He's right, Rafe. I am going to bite the fuck out of you.
-RAFE SPALL
-Cannot... resist... vagina... snake...
-The VAGINA SNAKE bites THE FUCK out of RAFE with its VAGINA DENTATA and breaks his ARM. SEAN cuts the VAGINA SNAKE in half and gets BUKKAKED with ACID BLOOD and falls into the BLACK GOO. Then the VAGINA SNAKE orally violates SEAN and kills him.
+РАФ СПОЛЛ
+Несмотря на то, что до этого момента при малейшей опасности я всегда визжал, как маленькая сучечка, я прямо сейчас пойду и обнимусь с этим странным существом.
+ШОН ХАРРИС
+Ты идиот. Оно искусает тебя нахуй.
+ВАГИНАЛЬНАЯ ЗМЕЯ
+Он чертовски прав, Раф. Я искусаю тебя нахуй.
+РАФ СПОЛЛ
+Не могу... сопротивляться... вагинальная... змея...
+ВАГИНАЛЬНАЯ ЗМЕЯ искусывает РАФА НАХУЙ при помощи своей ВАГИНЫ-ДЕНТАТЫ и ломает ему РУКУ. ШОН разрубает ВАГИНАЛЬНУЮ ЗМЕЮ напополам и моментально получает в лицо большое буккакэ из КИСЛОТНОЙ КРОВИ и падает прямо в ЧЕРНУЮ ЖИЖУ. После этого ВАГИНАЛЬНАЯ ЗМЕЯ орально изнасилывает ШОНА и убивает его.
 
-Meanwhile...
+Между тем...
 
-INT. PROMETHEUS
+INT. ПРОМЕТЕЙ
 
-MICHAEL secretly opens the METAL VASE he stole and extracts some BLACK GOO from it. Then he meets with LOGAN who is at the SPACE BAR getting PLASTERED.
+МАЙКЛ в обстановке строжайшей секретности откупоривает МЕТАЛЛИЧЕСКУЮ ВАЗУ, которую он выкрал, и достает оттуда ЧЕРНУЮ ЖИЖУ. Затем он встречается с ЛОГАНОМ, который НАДИРАЕТСЯ в КОСМИЧЕСКОМ БАРЕ.
 
-LOGAN MARSHALL-GREEN
-I can't believe we came all this way for nothing. And by nothing I mean discovering the ancient alien race that created humans. Nothing exciting about that. Woe is me. Too bad you can't understand because you're a stupid fucking robot.
+ЛОГАН МАРШАЛЛ ГРИН
+Не могу поверить, что мы проделали весь этот путь ради ничего. И под словом "ничего" я подразумеваю открытие древней инопланетной расы, создавшей человечество. Совершенно ничего удивительного в этом. Горе мне, горе. Как хреново, что не можешь меня понять, потому что ты тупой сраный робот.
 МАЙКЛ ФАССБЕНДЕР
-And that's exactly why I don't feel guilty about spiking your drink with the Black Goo, you whiny prick.
-LOGAN MARSHALL-GREEN
-What was that?
+Именно по этой причине я не испытываю ни малейшего чувства вины от того, что подливаю в твой стакан Черную Жижу, плаксивый педик.
+ЛОГАН МАРШАЛЛ ГРИН
+Что ты сказал?
 МАЙКЛ ФАССБЕНДЕР
-Oh nothing.
-LOGAN drinks the BLACK GOO and goes off to MAKE SEX with NOOMI. The next day LOGAN starts to DECOMPOSE like the 10 FOOT TALL ALBINO.
+О, ничего.
+ЛОГАН выпивает ЧЕРНУЮ ЖИЖУ и идет ТРАХАТЬСЯ с НОМИ. На следующий день ЛОГАН начинает РАЗЛАГАТЬСЯ, совсем как тот ТРЕХМЕТРОВЫЙ АЛЬБИНОС.
 
-LOGAN MARSHALL-GREEN
-Damn, I was really hoping to be killed off by an actual space monster with teeth instead of space AIDS. Oh well. Kill me!
+ЛОГАН МАРШАЛЛ ГРИН
+Твою мать, я очень надеялся, что меня сожрет настоящее космическое чудовище с огромными зубами, а не поганый космический СПИД! А, к черту. Убейте меня!
 НОМИ РАПАС
-Wait! We can freeze you and cure you when we get back home!
+Погодите! Мы можем заморозить его и вылечить, когда вернемся домой!
 ШАРЛИЗ ТЕРОН
-Or I could just cure him right now with this flamethrower!
-CHARLIZE flame-broils LOGAN. NOOMI faints and wakes up in the MEDICAL LAB.
+Или я могу вылечить его прямо сейчас при помощи вот этого огнемёта!
+ШАРЛИЗ поджаривает ЛОГАНА. НОМИ падает в обморок и приходит в себя в МЕДИЦИНСКОМ ОТСЕКЕ.
 
 МАЙКЛ ФАССБЕНДЕР
-You're three months pregnant.
+Ты на третьем месяце.
 НОМИ РАПАС
-The hell you say. Do you see my stomach? It's still flat and toned! Besides I'm sterile!
+Не гони. Видишь мой живот? Он плоский и в хорошем тонусе! Кроме того, я бесплодна!
 МАЙКЛ ФАССБЕНДЕР
-I guess the Black Goo I infected Logan with made you fertile again, somehow.
+Похоже, Черная Жижа, которой я заразил Логана, каким-то образом восстановила твою фертильность.
 НОМИ РАПАС
-What was that?
+Что ты сказал?
 МАЙКЛ ФАССБЕНДЕР
-Oh nothing. Congratulations on your mutated alien fetus!
-INNOCENT SCIENTISTS
-Now we will do our jobs by putting Noomi in her cryo bed!
+О, ничего. Кстати, мои поздравления: ты беременна мутировавшим алиеном!
+НЕВИННЫЕ УЧЕНЫЕ
+За работу, ребята! Заморозим-ка Номи в криогенной капсуле!
 НОМИ РАПАС
-Not if I cave in your skulls with this metal container first!
-NOOMI BLUDGEONS the INNOCENT SCIENTISTS and hops inside the SELF-SURGERY MACHINE.
+Только после того, как я раздолбаю ваши черепа этой железной хренью!
+НОМИ ОХУЯРИВАЕТ КАДИЛОМ НЕВИННЫХ УЧЕНЫХ и ловко запрыгивает в АВТО-ХИРУРГИЧЕСКИЙ АППАРАТ.
 
 НОМИ РАПАС
-One C-Section with fries and a Diet Coke to go!
-SELF-SURGERY MACHINE
-Didn't you hear Charlize? I'm programmed for men only!
+Одно кесарево с картошкой и диетической колой, пожалуйста! Заверните, возьму с собой!
+АВТО-ХИРУРГИЧЕСКИЙ АППАРАТ
+Ты не слышала, что сказала Шарлиз? Я запрограммирован лечить только мужчин!
 НОМИ РАПАС
-JUST GET IT OUT OF MEEEEEEE!!!!!!
-The SELF-SURGERY MACHINE cuts NOOMI open and removes her SQUID MONSTER BABY. NOOMI ABANDONS it because she is a TERRIBLE MOTHER.
+ПРОСТО ВЫНЬ ИЗ МЕНЯ ЭТО!!!!!!
+АВТО-ХИРУРГИЧЕСКИЙ АППАРАТ разрезает НОМИ и извлекает из неё ЧУДОВИЩНОГО КАЛЬМАРНОГО РЕБЕНКА. НОМИ БРОСАЕТ дитя на произвол судьбы, потому что она ОЧЕНЬ ПЛОХАЯ МАТЬ.
 
 НОМИ РАПАС
-I should really tell someone about that thing! Or go get a flamethrower and kill it!
-(pause)
-Or not. Whatever.
-NOOMI stumbles into the THIRD ACT and finds OLD GUY PEARCE.
+Я просто обязана рассказать кому-нибудь о том, что произошло! Или хотя бы взять огнемёт и уничтожить эту тварь!
+(пауза)
+Или нет. Пофиг.
+НОМИ ковыляет прямиком в ТРЕТЬЕ ДЕЙСТВИЕ и натыкается на СТАРОГО ГАЯ ПИРСА.
 
-OLD GUY PEARCE
-I'm still alive! Twist! I'm hoping The Engineers will grant me the secret to eternal life!
+СТАРЫЙ ГАЙ ПИРС
+А я всё ещё жив! Вот это поворот! Я надеюсь, что Инженеры откроют мне секрет вечной жизни!
 НОМИ РАПАС
-But they're all dead!
+Но они все умерли!
 МАЙКЛ ФАССБЕНДЕР
-Actually I discovered one of their ships and found an Engineer alive in stasis. Also I'm responsible for Logan's death.
+Вообще-то я как раз нашел один из их кораблей и там внутри есть живой Инженер в спячке. К тому же, это я виноват в смерти Логана.
 НОМИ РАПАС
-I'll just ignore that last part and go with you.
-INNOCENT SCIENTISTS
-Hey Noomi, remember us? You knocked our teeth out and gave us brain damage.
+Я просто проигнорирую последнюю часть фразы и отправлюсь вместе с вами.
+НЕВИННЫЕ УЧЕНЫЕ
+Эй, Номи, помнишь нас? Ты только что выбила нам зубы и проломила нам черепа.
 НОМИ РАПАС
-I guess you're pretty upset with me.
-INNOCENT SCIENTISTS
-Nah, we're cool. What's a little aggravated assault amongst proper European scientists?
-Meanwhile...
+Наверное, вы не очень довольны моим поведением.
+НЕВИННЫЕ УЧЕНЫЕ
+Не, все в порядке. Нападение с отягчающими? Сущий пустяк для истинного Европейского ученого мужа!
+Меж тем...
 
-The BLACK GOO has turned SEAN HARRIS into a 28 DAYS LATER ZOMBIE instead of DECOMPOSING his body or turning him into a VAGINA SNAKE because the BLACK GOO is an ALL PURPOSE PLOT DEVICE and does WHATEVER THE FUCK THE MOVIE NEEDS IT TO DO. SEAN and a bunch of crew members we DON'T KNOW or CARE ABOUT are KILLED.
-
-NOOMI meets with IDRIS.
+ЧЕРНАЯ ЖИЖА превратила ШОНА ХАРРИСА в зомби из "28 дней спустя", вместо того, чтобы РАЗЛОЖИТЬ его тело или превратить его в ВАГИНАЛЬНУЮ ЗМЕЮ. Потому что ЧЕРНАЯ ЖИЖА - ЭТО УНИВЕРСАЛЬНАЯ СЮЖЕТНАЯ ХРЕНЬ, которая делает ВСЁ ЧТО БЛЯТЬ УГОДНО, ЕСЛИ ЭТО НУЖНО ПО ХОДУ ДЕЙСТВИЯ. ШОН и куча членов команды, которых мы НЕ ЗНАЕМ или до которых нам НЕТ ДЕЛА, ПОГИБАЮТ.
+  
+НОМИ встречает ИДРИСА.
 
 НОМИ РАПАС
-Idris, you are my black friend, so I'll need you to sacrifice yourself at some point to stop the Black Goo from getting to Earth.
-IDRIS ELBA
-Agreed. Clearly The Engineers used this moon as a military base.
-(pause)
-Wait, why would The Engineers give us the location of their bio-weapons base in those pictograms you found? That makes zero sense. I hope the movie explains this.
-IDRIS hopes IN VAIN.
+Идрис, ты мой черный друг. Поэтому рано или поздно мне потребуется, чтобы ты принес себя в жертву, чтобы не допустить Черную Жижу на Землю.
+ИДРИС ЭЛЬБА
+Согласен. Очевидно, что Инженеры использовали эту луну в качестве военной базы.
+(пауза)
+Погоди. Зачем Инженерам потребовалось оставлять нам координаты своей базы с биохимическим оружием на тех наскальных рисунках, что вы нашли? Это просто не имеет смысла. Надеюсь, фильм как-то прояснит ситуацию.
+ИДРИС надеется ЗРЯ.
 
-INT. ENGINEER SHIP
+INT. КОРАБЛЬ ИНЖЕНЕРОВ
 
-NOOMI, MICHAEL and OLD GUY PEARCE wake up THE ENGINEER, who looks like the 10 FOOT ALBINO except in SPANDEX. MICHAEL talks to him in his NATIVE LANGUAGE.
+НОМИ, МАЙКЛ и СТАРЫЙ ГАЙ ПИРС пробуждают ИНЖЕНЕРА, который выглядит точно так же, как тот ТРЕХМЕТРОВЫЙ АЛЬБИНОС, только в КОСТЮМЧИКЕ. МАЙКЛ ведет с ним переговоры на его РОДНОМ ЯЗЫКЕ.
 
 МАЙКЛ ФАССБЕНДЕР
-Hello, I am Michael-3P0, Human Cyborg relations and I really don't like the way my head is attached to the rest of my body. Is there anything you can do to fix that?
-THE ENGINEER rips MICHAEL'S FUCKING HEAD OFF and beats OLD GUY PEARCE to death with it while NOOMI ESCAPES.
+Привет, я Майкл-3P0 из отдела по человеко-кибернетическим отношениям, и мне очень не нравится, как моя голова присобачена к моему туловищу. Ты не мог бы мне как-то помочь с этой проблемой?
+ИНЖЕНЕР отрывает ЕБАНУЮ БАШКУ МАЙКЛА и этой бошкой забивает СТАРОГО ГАЯ ПИРСА до смерти, а НОМИ в это время УДИРАЕТ.
 
-EXT. MOON SURFACE
+EXT. ЛУННАЯ ПОВЕРХНОСТЬ
 
-THE ENGINEER starts up his ship using advanced FLUTE TECHNOLOGY. The ship rises up out of the ground and is about to go to EARTH.
+ИНЖЕНЕР запускает двигатели своего корабля, используя ПРОДВИНУТУЮ ТЕХНОЛОГИЮ ФЛЕЙТЫ. Корабль отрывается от поверхности и явно намеревается лететь на Землю.
 
 НОМИ РАПАС
-Idris! The Engineers want to kill all humans with the vases full of Black Goo!
-IDRIS ELBA
-But why? Didn't they create us? Why do they suddenly want to destroy us?
+Идрис! Инженеры собираются убить всех людей при помощи ваз, полных Черной Жижи!
+ИДРИС ЭЛЬБА
+Но почему? Разве они не сами нас создали? Почему они внезапно хотят уничтожить нас?
 НОМИ РАПАС
-I think we did something to really piss them off around 2,000 years ago!
-IDRIS ELBA
-Hey... didn't we get here on Christmas Day? And isn't there a lot of religious/self-sacrifice themes going on? I wonder what this could all be hinting at?
+Я думаю, приблизительно 2 тысячи лет назад мы сделали что-то такое, что их основательно разозлило!
+ИДРИС ЭЛЬБА
+Ээ-й... разве мы не прибыли на эту луну в день Рождества? Разве мы не поднимали множество раз тему религии и самопожертвования? Мне просто интересно, на что бы это все могло намекать?
 НОМИ РАПАС
-No idea! Just hurry up and sacrifice yourself already!
-IDRIS and his crew HAPPILY throw their hands up in the air like they're on a ROLLER COASTER and KAMIKAZE the ENGINEER SHIP, but CHARLIZE and the LIFEBOAT are ejected from PROMETHEUS before it EXPLODES.
-
-ШАРЛИЗ ТЕРОН
-Yes! I'm safe! I'm going to make it!
-But the ENGINEER SHIP falls from the sky and is about to squash CHARLIZE.
+Без понятия! Просто уже поторопись и принеси себя в жертву!
+ИДРИС и его команда СО СЧАСТЛИВЫМ ВЫРАЖЕНИЕМ НА ЛИЦАХ вздымают руки кверху, как на АМЕРИКАНСКИХ ГОРКАХ и берут КОРАБЛЬ ИНЖЕНЕРОВ НА ТАРАН. ШАРЛИЗ В СПАСАТЕЛЬНОЙ ШЛЮПКЕ оказывается за бортом ПРОМЕТЕЯ перед тем, как он ВЗРЫВАЕТСЯ.
 
 ШАРЛИЗ ТЕРОН
-Fuck! I could run sideways and avoid being crushed... or not!
-(is crushed to death)
-What was the point of my character again?
-NOOMI reaches the LIFEBOAT.
+Да! Я в безопасности! Я буду спасена!
+Но КОРАБЛЬ ИНЖЕНЕРОВ падает аккурат с неба и готовится раздавить ШАРЛИЗ.
 
-МАЙКЛ ФАССБЕНДЕР MICHAEL FASSBENDER'S SEVERED HEAD
-Hey Noomi, just giving you a heads up. The Engineer's on his way there and he said something about being a huge Rooney Mara fan!
-THE ENGINEER tries to murder NOOMI.
+ШАРЛИЗ ТЕРОН
+Ёпт! Я могла бы убежать в сторону и остаться в живых... или нет!
+(раздавливается в лепешку)
+Так в чем был смысл моего персонажа, а?
+НОМИ добирается до СПАСАТЕЛЬНОЙ ШЛЮПКИ.
 
-НОМИ РАПАС
-Why do you want to kill all humans so badly?!
-THE ENGINEER
-Because we hate prequels! And sequels! And remakes! And reboots! And especially 3D! And this movie is most of those things! You people must all be stopped!
-НОМИ РАПАС
-TENTACLE MONSTER BABY ATTACK!
-NOOMI's MUTANT SQUID BABY has grown into a huge HENTAI TENTACLE MONSTER and attaches itself to THE ENGINEER'S FACE in a HUGGING sort of way.
+ОТОРВАННАЯ ГОЛОВА МАЙКЛА ФАССБЕНДЕРА
+Эй Номи, я довольно башковитый парень, поэтому вот что я скажу: Инженер вот-вот нагрянет, и он упомянул меж делом, что является огромным поклонником Руни Мары!
+ИНЖЕНЕР пытается убить НОМИ.
 
 НОМИ РАПАС
-Oh, I see, if I had aborted it then it wouldn't have been around to save me. This has to be the most twisted fucked up Pro-Life message ever. There's no way this movie is going to match up with "Alien" now. I might as well just kill myself and get it over with.
-МАЙКЛ ФАССБЕНДЕР MICHAEL FASSBENDER'S SEVERED HEAD
-But we can still bridge the gap between the two movies!
+Почему, почему вы так хотите уничтожить всех людей?!
+ИНЖЕНЕР
+Потому что мы ненавидим приквелы! И сиквелы! И ремейки! И перезагрузки! И особенно в 3D! А этот фильм одновременно является почти всем из перечисленного! Вас, людей, необходимо остановить, пока еще не поздно!
 НОМИ РАПАС
-How?
-MICHAEL FASSBENDER'S SEVERED HEAD
-By introducing a third movie! There are other Engineer ships around here and I know how to pilot them!
+ТЕНТАКЛЕВЫЙ ЧУДОВИЩНЫЙ МЛАДЕНЕЦ - В АТАКУ!
+ЧУДОВИЩНЫЙ КАЛЬМАРНЫЙ РЕБЕНОК НОМИ вырос в огромного ХЕНТАЙНОГО ТЕНТАКЛЕВОГО МОНСТРА. Он обнимается с ИНЖЕНЕРОМ и присасывается к его ЛИЦУ.
+
 НОМИ РАПАС
-Are you shitting me? Then why didn't The Engineer just go take off in another ship instead of trying to kill me? And how could he breathe outside without an oxygen mask? The movie had damn well better explain some of this.
+О, теперь я поняла: если бы я сделала аборт, он бы сейчас не смог прийти мне на помощь. Похоже, мы только что стали свидетелями самого извращенного и ебанутого манифеста против абортов за всю историю человечества. Кроме того, теперь этот фильм уже абсолютно точно оборвал все связи с "Чужим". Если я прямо сейчас убью себя, вряд ли станет сильно хуже.
+ОТОРВАННАЯ ГОЛОВА МАЙКЛА ФАССБЕНДЕРА
+Но мы всё еще можем попробовать соединить логически эти два фильма!
+НОМИ РАПАС
+Но как?
+ОТОРВАННАЯ ГОЛОВА МАЙКЛА ФАССБЕНДЕРА
+Конечно же, оставив задел на третий фильм! Смотри, тут еще много других кораблей Инженеров, и я знаю, как управлять ими!
+НОМИ РАПАС
+Ты сейчас прикалываешься что ли? Почему тогда инженер просто не улетел на другом корабле, вместо того, чтобы пытаться убить меня? И как он мог дышать снаружи без кислороной маски? Этот фильм должен чертовски постараться, чтобы объяснить хотя бы часть всего этого.
 СЦЕНАРИСТ ДЭЙМОН ЛИНДЕЛОФ
-It's not about "answers" so much as it's about--
-TWITTER USERS
-Go to hell, Lindelof!
+Это фильм не столько про "ответы", сколько про...
+ПОЛЬЗОВАТЕЛИ TWITTER
+Иди к черту, Линделоф!
 СЦЕНАРИСТ ДЭЙМОН ЛИНДЕЛОФ
-Enough! You want answers? Fine! I will give you fucking answers! What's the Black Goo? It's MAGIC so SHUT THE FUCK UP ABOUT IT! What was Michael's agenda? SUCK MY BALLS is what! Why did The Engineers create humans only to try and wipe them out? Because FUCK YOU THAT'S WHY! Have fun with your stupid Transformers and your PG-13 superhero movies, assholes!
-NOOMI and MICHAEL'S HEAD leave in another ENGINEER SHIP to boldly go where no woman or severed android head has gone before.
+Хватит! Хотите ответов? Отлично! Я дам вам ваши ёбаные ответы! Что такое Черная Жижа? Это МАГИЯ, так что ЗАТКНИТЕ СВОИ ВОНЮЧИЕ РТЫ! В чем был замысел Майкла? СОСИТЕ МОИ ЯЙЦА, вот в чем! Зачем Инженеры создали людей, чтобы после этого только пытаться уничтожить их? Затем, что ПОШЛИ ВЫ НАХУЙ, вот зачем! Смотрите тупорылых Трансформеров и прочее супергеройское говнище с рейтингом PG-13, дебилы, блять!
+НОМИ и ГОЛОВА МАЙКЛА улетают на другом корабле Инженеров туда, где не ступала еще нога женщины и оторванной головы андроида.
 
-Meanwhile...
+Тем временем...
 
-INT. PROMETHEUS LIFEBOAT
+INT. СПАСАТЕЛЬНАЯ ШЛЮПКА ПРОМЕТЕЯ
 
-THE ENGINEER's chest bursts open and a cheap KNOCKOFF XENOMORPH ALIEN slides out as one last BITCH SLAP to the FANS of the ALIEN SERIES.
+Грудь ИНЖЕНЕРА взрывается изнутри, и наружу вырывается дешевый ПОДДЕЛЬНЫЙ ЧУЖОЙ, нанося контрольную ОПЛЕУХУ всем оставшимся вживых ФАНАТАМ СЕРИИ "ALIEN". 
 
-END
-
-
-
-
+КОНЕЦ
