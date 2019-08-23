@@ -64,3 +64,7 @@ http://www.moviescriptsandscreenplays.com/
 --- read ---
 часы обратного времени, весь сборник
 
+
+https://www.bleepingcomputer.com/forums/t/602348/monitors-wont-wake-up-after-pc-goes-to-sleep/
+https://www.maketecheasier.com/fix-a-monitor-not-waking-up-after-sleep/
+
